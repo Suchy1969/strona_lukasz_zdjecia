@@ -1,0 +1,1 @@
+# strona_lukasz_zdjecia
